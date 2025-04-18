@@ -5,9 +5,9 @@
 ![刺猬索尼克3 Official Poster](https://camo.githubusercontent.com/8effc960766b04edc5e37512a6af85c8074b0a845b3b18302ac77ca9c975e1d0/68747470733a2f2f6d656469612e74656e6f722e636f6d2f7157574b2d4f38334a355941414141692f636c69636b2d686572652e676966)
 
 
-<h3><a href="https://yesmov.fun/zh/movie/939243/sonic-the-hedgehog-3.OVER">立即观看 ➥ 刺猬索尼克3 (2025) 完整电影在线中文</a></h3>
+<h3><a href="https://aaamiiin.com/zh/movie/939243/sonic-the-hedgehog-3.OVER">立即观看 ➥ 刺猬索尼克3 (2025) 完整电影在线中文</a></h3>
 
-<h3><a href="https://yesmov.fun/zh/movie/939243/sonic-the-hedgehog-3.OVER">下载 ➥ Sonic The Hedgehog 3 (2025) 完整电影在线中文</a></h3>
+<h3><a href="https://aaamiiin.com/zh/movie/939243/sonic-the-hedgehog-3.OVER">下载 ➥ Sonic The Hedgehog 3 (2025) 完整电影在线中文</a></h3>
 
 
 看刺猬索尼克3在线中文版，刺猬索尼克3 (2025) 完整电影在线中文版。
